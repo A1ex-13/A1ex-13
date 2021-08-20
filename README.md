@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @A1ex-13 
 - 👀 I’m interested in Data Analytics.
 - 🌱 I’m currently learning “Foundations: Data, Data, Everywhere”
-- 💞️ I’m looking to collaborate on database.
+- 🚀 I’m looking to collaborate, no 1 can build a rocket alone. 
 - [📭How to reach me[skype]](https://join.skype.com/invite/WmKMmB0aIxxH)
 
 <!---
