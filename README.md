@@ -6,7 +6,7 @@
 - [📭How to reach me[skype]](https://join.skype.com/invite/WmKMmB0aIxxH)
 
 
-- [home](https://a1ex-13.github.io)
+🚪 home(https://a1ex-13.github.io)
 
 <!---
 A1ex-13/A1ex-13 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
