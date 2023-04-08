@@ -4,6 +4,7 @@
 - 🚀 I’m looking to collaborate, no 1 can build a rocket alone. 
 - 🤖 I'm modifying it something - anything ¬ this cool.
 - [📭How to reach me[skype]](https://join.skype.com/invite/WmKMmB0aIxxH)
+- [❤️Become a sponsor to A1ex-13](https://github.com/sponsors/A1ex-13)
 
 
 [🚪 home](https://a1ex-13.github.io)
