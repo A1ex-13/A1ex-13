@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning “Foundations: Data, Data, Everywhere”
 - 🚀 I’m looking to collaborate, no 1 can build a rocket alone. 
 - 🤖 I'm modifying it something - anything ¬ this cool.
-- [📭How to reach me[skype]](https://join.skype.com/invite/WmKMmB0aIxxH)
+- [📭How to reach me[-_-]](https://join.skype.com/invite/WmKMmB0aIxxH)
 - [❤️Become a sponsor to A1ex-13](https://four.meme/token/0x00fd2a97cf8b029f02e710e22d5c49a9cf8e6311)
 
 [🚪 home](https://a1ex-13.github.io)
